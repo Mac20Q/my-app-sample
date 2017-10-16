@@ -17,3 +17,4 @@ While looking on the desktop as I’m done experience and pleasing to deal with 
 How are easy it is to get the words onto the page. Can you do the dictation route for getting the words into your document? How easy is it to do the editing necessary to make sure your text reads properly. Will it be easy to get the pictures set the right size for your blog? Can you crop and size the pictures within the blocking software or does it have to be done beforehand? Lots of different questions to be looked at when it comes down to on your kinky device.
 
 Committed 
+To being the best
